@@ -1,4 +1,4 @@
-# Welcome to My Portfolio
+# Welcome to My Profile
 
 Hi there! I'm Esmail, a passionate Student in Rostock uni with experience in multiple programming languages. Below you'll find a list of projects I've worked on, showcasing my skills.
 
