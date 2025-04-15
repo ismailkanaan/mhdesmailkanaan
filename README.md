@@ -21,7 +21,7 @@ Hi there! I'm Esmail, a passionate Student in Rostock uni with experience in mul
 
 ## 📞 How to Reach Me:
 - Email: mhdesmailkanaan@gmail.com
-- LinkedIn: https://www.linkedin.com/in/yourname)](https://www.linkedin.com/in/mhd-esmail-kanaan-16926119a
+- LinkedIn: https://www.linkedin.com/in/mhd-esmail-kanaan-16926119a
 
 ---
 
